@@ -5,5 +5,6 @@
 gosto de ler e desenhar também adoro animais
 
 
- ![.]https://media1.tenor.com/m/ZzFwUCy-Dd4AAAAC/anime-cuddle.gif
+ ![.](![https://media1.tenor.com/m/ZzFwUCy-Dd4AAAAC/anime-cuddle.gif)
+ 
  
